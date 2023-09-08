@@ -1,2 +1,8 @@
 # Pisscord
-pisscord, shall i explain?
+Shall i say any more?
+
+
+
+
+
+**Create your dream version of Discord**
